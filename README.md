@@ -1,1 +1,0 @@
-# VELORIA-Luxury-Beauty
